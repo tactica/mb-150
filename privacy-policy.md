@@ -4,7 +4,7 @@ PRIVACY POLICY
 
 The privacy and security of personal information is very important to Manitoba 150 Host Committee Inc.(&quot;**Manitoba 150**&quot;). It is Manitoba 150&#39;s policy to protect and respect the privacy of personal information in accordance with applicable privacy laws. This Privacy Policy guides Manitoba 150&#39;s privacy and security practices with respect to all personal information in the possession and control of Manitoba 150, and may be supplemented by specific policies, procedures, and practices.
 
-**Why does**  **Manitoba 150 collect personal information****?**
+**Why does Manitoba 150 collect personal information?**
 
 Manitoba 150may collect personal information for the following purposes:
 
